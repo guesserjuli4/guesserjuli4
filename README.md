@@ -1,7 +1,13 @@
-- 👋 Hi, I’m @guesserjuli4
-- 🌱 I’m currently learning systems
-- 📫 How to reach me instagram @guesserjuli4
-- 😄 Pronouns: she her
+How would you know the difference
+Between the virtual world
+And the rеal world?
+Maybe what you see with your eyes
+Is all an illusion
+
+
+![image](https://github.com/guesserjuli4/guesserjuli4/assets/159532759/ba50966d-1279-4854-b2d9-bd2b4a0defd9)
+![image](https://github.com/guesserjuli4/guesserjuli4/assets/159532759/21f29b34-e026-4b8d-828a-246268f5f366)
+
 
 <!---
 guesserjuli4/guesserjuli4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
