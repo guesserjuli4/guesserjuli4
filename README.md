@@ -5,7 +5,6 @@ Maybe what you see with your eyes
 Is all an illusion
 
 
-![image](https://github.com/guesserjuli4/guesserjuli4/assets/159532759/ba50966d-1279-4854-b2d9-bd2b4a0defd9)
 ![image](https://github.com/guesserjuli4/guesserjuli4/assets/159532759/21f29b34-e026-4b8d-828a-246268f5f366)
 
 
