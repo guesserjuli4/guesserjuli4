@@ -1,4 +1,4 @@
-3° F - COLÉGIO ESTADUAL PADRE CARMELO PERRONE 💛
+
 
 <!--
 **guesserjuli4/guesserjuli4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
